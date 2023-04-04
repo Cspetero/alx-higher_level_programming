@@ -1,3 +1,0 @@
-gvsgydvhasbdjcbah dadcA
-.dcnajncda
-/adhdna
